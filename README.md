@@ -5,8 +5,8 @@ My name is Jeriko and I am an undergraduate student at the American Public Unive
 ## III. Links:
 1. Website = Https://Mayeaux.cloud
 2. Pensight = Https://Pensight.com/x/Jeriko
-3. YouTube = https://www.youtube.com/@AstroJeriko
-4. TikTok = https://www.tiktok.com/@astrojeriko
-5. Buy Me a Coffee = Https://www.buymeacoffee.com/astrojeriko
+3. YouTube = https://youtube.com/@AstroJeriko
+4. TikTok = https://tiktok.com/@astrojeriko
+5. Buy Me a Coffee = Https://buymeacoffee.com/astrojeriko
 ## IV. Contact Me:
 - Support@Mayeaux.cloud
